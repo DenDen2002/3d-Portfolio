@@ -1,1 +1,0 @@
-# ychan2002.github.io
